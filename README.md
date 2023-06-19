@@ -1,1 +1,1 @@
-### hi, welcome to my profile!
+### welcome to my profile!
